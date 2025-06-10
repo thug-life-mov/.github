@@ -2,9 +2,9 @@
 
 **Thug Life (2025)** is one of the most anticipated Indian films of the year, blending espionage, intense action, and gripping drama. Directed by Gowtam Tinnanuri and starring Vijay Deverakonda, this Telugu-language film promises to be a cinematic spectacle. Scheduled for release on **July 4, 2025**, it has already garnered significant attention.
 
-### <a href="https://rebrand.ly/46f082" rel="nofollow">➤ ► CLICK HERE TO WATCH NOW</a>
+### <a href="https://rebrand.ly/46f082" rel="nofollow">➤ ► CLICK HERE TO Download NOW</a>
 
-### <a href="https://rebrand.ly/46f082" rel="nofollow">➤ ► CLICK HERE TO WATCH NOW</a>
+### <a href="https://rebrand.ly/46f082" rel="nofollow">➤ ► CLICK HERE TO Download NOW</a>
 ---
 
 ## 📊 Movie Overview
